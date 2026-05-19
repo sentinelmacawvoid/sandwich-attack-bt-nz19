@@ -1,4 +1,4 @@
-# 
+# best bot sniper MEV extensions est le meilleur bot sniper MEV extensions avec take-profit et balayage des degen coins. Sécurisé, fiable et optimisé pour les stratégies MEV, sniper
 
 
 
